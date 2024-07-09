@@ -1,1 +1,1 @@
-# fasionrader.com
+# fashionrader.com
